@@ -4,10 +4,15 @@
 
 
 # WARNING
+
 - Please, use this idea for good reasons, don't use under Nature Filiation's.
 
+
 #GENESIS SIDE
+
 - The intention are: The "User of Windows" feel better droping EC energy, and this software making a correctly canalisation of energy.
 
 - Understand? It's not a gun, but can be a flower pushing positive energy.
 
+
+ID: #TX-220120261102-7-0-IFPG-440422115
